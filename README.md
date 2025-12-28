@@ -12,7 +12,7 @@ Visit **[xpot.ch](https://xpot.ch)** to find my blog, where I share thoughts and
 ### Contact Information
 - **Discord:** `chaoticpotato69` (Best way to reach me)
 - **Email:** `john@xpot.ch`
-- **Reddit:** [u/chaoticpotato69](https://www.reddit.com/user/chaoticpotato69)
+- **Reddit:** [u/chaoticpotato690](https://www.reddit.com/user/chaoticpotato690)
 
 ### Privacy & Presence
 - **X (Twitter):** I use X only for browsing; I do not post or reply to DMs.
